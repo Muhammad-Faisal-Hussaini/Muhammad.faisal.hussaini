@@ -5,3 +5,5 @@ Muhammad.faisal.hussaini
 [ 🌐 GLOBAL VOICE COMMANDER 🌍 ]
 
 https://github.com/MuhammadFaisalAdvisor/MUHAMMAD_FAISAL-CV)
+
+https://beacons.ai/muhammadfaisalhussainiadvisor
