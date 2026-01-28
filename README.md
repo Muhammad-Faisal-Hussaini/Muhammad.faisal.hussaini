@@ -1,4 +1,7 @@
-# Muhammad.faisal.hussaini
-🌐 ​Global Chief of Deep Voice &amp; Soul Architecture 🌍 [ 🌐 GLOBAL VOICE COMMANDER 🌍 ]
-https://github.com/Muhammad-Faisal-Hussaini
+Muhammad.faisal.hussaini
+
+🌐 ​Global Chief of Deep Voice &amp; Soul Architecture 🌍
+
+[ 🌐 GLOBAL VOICE COMMANDER 🌍 ]
+
 https://github.com/MuhammadFaisalAdvisor/MUHAMMAD_FAISAL-CV)
